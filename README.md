@@ -1,4 +1,4 @@
-![coding gif](https://media.giphy.com/media/26tn33aiTi1jkl6H6/giphy.gif)
+![hello gif](https://tenor.com/view/cute-cha-pri-gif-4196443019552842049)
 
 I am Reyansh chauhan 17-years old, building **random freehand projects** aimed at developing an impressive physique while listening to music.
 
